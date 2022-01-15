@@ -1,2 +1,2 @@
-# iwanttofuckccf.github.io
-<https://fuckccf.1919810.com>
+# iloveccf.github.io
+<https://iloveccf.1919810.com>
