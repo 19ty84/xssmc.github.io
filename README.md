@@ -1,2 +1,2 @@
-# iloveccf.github.io
-<https://iloveccf.1919810.com>
+# xssmc.github.io
+<https://xssmc.1919810.com>
